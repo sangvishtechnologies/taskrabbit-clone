@@ -57,7 +57,7 @@ A [TaskRabbit clone script ](https://sangvish.com/taskrabbit-clone/)presents a g
 
 Seize this lucrative opportunity, invest in a dependable script, and embark on your journey to success in the on-demand economy! 🚀 It's time to revolutionize the way people access services - bring your platform to life! 🌟
 
-Explore -https://sangvish.com/taskrabbit-clone/ 
+Click here for a **live DEMO** of our TaskRabbit clone, ready to streamline your tasks and projects!- [https://sangvish.com/taskrabbit-clone/ ](https://sangvish.com/taskrabbit-clone/#demo)
 
 **Connect With Us!**
 
